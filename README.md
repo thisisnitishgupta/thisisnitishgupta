@@ -1,0 +1,1 @@
+👋 Hi, I’m @thisisnitishgupta an enthusiastic engineering fresher who is a self-starter and capable to use technical skills for the betterment of the organization. A bachelor’s degree in Computer Science Engineering looking forward to working in a competitive environment and learning soft skills that enhance overall learning.
